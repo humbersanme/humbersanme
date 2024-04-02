@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on  Energy Projects
 - 📫 How to reach me husanme17@gmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: Footbal, running, crossfit
+- ⚡ Fun fact: Football, running, crossfit
 
