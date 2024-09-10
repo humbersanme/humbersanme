@@ -9,14 +9,14 @@ Doing data
   
 <h1 align="center">Github Metrics </h1>
 <p align="center">
-  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
+  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
 </p>
 
 <h1 align="center">Daily data</h1>
 <p align="center">
 
    
-[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&point=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
 
 
 ### Follow me 🤳
@@ -28,11 +28,33 @@ Doing data
 
    # 📊 Stats
 
-<div align="center">  
+<div align="centerthub Metrics </h1>
+<p align="center">
+  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
+</p>
+
+<h1 align="center">Daily data</h1>
+<p align="center">
+
+   
+[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+
+">  
   <img width="49%" height="195px" src="https://github-readme-stats.vercel.app/api?username=humbersanme&show_icons=true&count_private=true&hide_border=true&title_color=00b3ff&icon_color=00b4ff&text_color=c9d1d9&bg_color=0d1117" alt="humbersanme github stats" /> 
   
   <img width="41%" height="195px" src="https://github-readme-stats.vercel.app/api/top-langs/?username=humbersanme&layout=compact&hide_border=true&title_color=00b3ff&text_color=00b4ff&bg_color=0d1117" />
 </div>
+thub Metrics </h1>
+<p align="center">
+  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
+</p>
+
+<h1 align="center">Daily data</h1>
+<p align="center">
+
+   
+[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+
 
 ### Tools I use 🛠️
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/html5/html5-original.svg" width="48px"/></span>
@@ -42,11 +64,33 @@ Doing data
    <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/tailwindcss/tailwindcss-original.svg" width="48px"/></span> 
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/vscode/vscode-original.svg" width="48px"/></span>
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/bash/bash-original.svg" width="48px"/></span>
-  <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/git/git-original.svg" width="48px"/></span>
+  <span><img src="https://thub Metrics </h1>
+<p align="center">
+  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
+</p>
+
+<h1 align="center">Daily data</h1>
+<p align="center">
+
+   
+[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+
+cdn.jsdelivr.net/gh/devicons/devicon/icons/git/git-original.svg" width="48px"/></span>
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/github/github-original.svg" width="48px"/></span>
    <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/canva/canva-original.svg" width="48px"/></span>
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/figma/figma-original.svg" width="48px"/></span>
- <span> <img src="https://github.com/tandpfun/skill-icons/blob/main/icons/Linux-Dark.svg" width="48" title="Linux"></span> 
+ <span> <img src="https://thub Metrics </h1>
+<p align="center">
+  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
+</p>
+
+<h1 align="center">Daily data</h1>
+<p align="center">
+
+   
+[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+
+github.com/tandpfun/skill-icons/blob/main/icons/Linux-Dark.svg" width="48" title="Linux"></span> 
 <span><img src="" width="48" title=""><img src="https://github.com/tandpfun/skill-icons/blob/main/icons/Python-Dark.svg" width="48" title="Python"></span>  <span><img src="https://github.com/tandpfun/skill-icons/blob/main/icons/AWS-Dark.svg" width="48" title="AWS"></span>
 # 👩‍💻Skills
 
@@ -67,23 +111,7 @@ graph TD;
 graph TD;
     Data-Science-->Python;
     Data-Science-->Linux;
-    Data-Science-->Git;
-    Data-Science-->GitHub;
-    Data-Science-->Machine-Learning;
-    Machine-Learning -->Scikit-Learn;
-    Machine-Learning -->PyTorch;
-    Machine-Learning -->TensorFlow;
-    Machine-Learning -->Keras;
-    Machine-Learning -->XGBoost;
-    Machine-Learning -->Statsmodels;
-    Data-Science-->Deep-Learning;
-    Deep-Learning -->TensorFlow;
-    Deep-Learning -->Keras;
-    Deep-Learning -->PyTorch;
-    Data-Science-->Big-Data;
-    Big-Data -->Apache-Spark;
-    Big-Data -->Scala;
-   ```
+ 
 3. Cloud
 
 ```mermaid
@@ -92,17 +120,7 @@ graph TD;
     AWS-->Instances-EC2;
     Instances-EC2 -->On-Demand;
     Instances-EC2 -->Dedicated;
-    Instances-EC2 -->Reserved;
-    Instances-EC2 -->Host;
-    AWS-->Storage-S3;
-    AWS-->Virtual-Private-Cloud-VPC;
-    AWS--> Database;
-    Database --> RDS;
-    RDS --> Aurora;
-    RDS --> Redshift;
-    RDS --> Athena;
-    Database --> Dynamo;
-    AWS--> IAM;
+    
     Cloud-->GCP;
     GCP-->DEVOP`s;
    ```
