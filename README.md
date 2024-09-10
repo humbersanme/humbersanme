@@ -175,12 +175,7 @@ Countries
     <span><strong>JavaScript (JS)</strong></span><br>
     <img height="32px" src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/javascript/javascript-original.svg">
 </td>
-<td width="80px" align="center">
-    <span><strong>HTML</strong></span><br>
-    <img height="32px" src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/html5/html5-original.svg">
-</td>
-<td width="80px" align="center">
-    <span><strong>CSS</strong></span><br>
+<td width="80p
     <img height="32px" src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/css3/css3-original.svg">
 </td>
             <td width="80px" align="center">
@@ -212,7 +207,211 @@ Countries
   <td align="center"><img align="center" alt="Max-Python" height="30" width="40" src="https://raw.githubusercontent.com/devicons/devicon/master/icons/python/python-original.svg">Python</td>
                           
   </table>   
+ <!--Final da Tabela - End table-->nal.svg">Python</td>
+                          
+  </table>   
  <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>nal.svg">Python</td>
+                          
+  </table>   
+ <!--Final da Tabela - End table-->
+</div>
+
+<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
+<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
+
+<a href="https://github.com/antonkomarev/github-profile-views-counter">
+    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+</a>
+
+
+### Contact Me 📞
+- sanmen.es <br/>
+- +34 639 155213 <br/>
+- husanme17@gmail.com <br/>
 </div>
 
 <!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
