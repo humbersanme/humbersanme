@@ -9,19 +9,19 @@ Doing data
   
 <h1 align="center">Github Metrics </h1>
 <p align="center">
-  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=humbersanme&theme=github_dark" />
+  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
 </p>
 
 <h1 align="center">Daily data</h1>
 <p align="center">
 
    
-[![humbersanme's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&point=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&point=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
 
 
 ### Follow me 🤳
   <a href="https://www.x.com/husan_me"><img src="https://cdn2.iconfinder.com/data/icons/threads-by-instagram/24/x-logo-twitter-new-brand-contained-64.png" width="30px"/></a>
-  <a href="https://www.instagram.com/omarhum20"><img src="https://cdn2.iconfinder.com/data/icons/social-media-2285/512/1_Instagram_colored_svg_1-64.png" width="30px"/></a>
+  <a href="https://www.instagram.com/omarhum20">-cards.vercel.app/api/cards/profile<img src="https://cdn2.iconfinder.com/data/icons/social-media-2285/512/1_Instagram_colored_svg_1-64.png" width="30px"/></a>
   <a href="https://www.linkedin.com/in/humberto-developer"><img src="https://static-exp1.licdn.com/sc/h/eahiplrwoq61f4uan012ia17i" width="30px"/></a> 
 - [🤵 Portfolio](http://127.0.0.1:5500/index.html#contact)<br/>
 - [🌐 Website](https://sanmen.es) <br/>
