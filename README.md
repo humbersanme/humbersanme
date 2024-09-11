@@ -155,7 +155,7 @@ Countries
 # 🐛 Snyken 
 1. My snake path
    
-![](https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg)
+![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
 
 
 <!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
@@ -332,7 +332,10 @@ I love empoweringil.com <br/>nal.svg">Pythle-render.vercel.app/api?type=waving&c
 
 About me / Acerca de mi 👋
 I love empowering/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+    <img src="https://komarev.com/ghpvc/?userMy snake path
+   
+![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
+name=humbersanme&style=for-the-badge">
 </a>
 
 
@@ -351,7 +354,10 @@ I love empoweringil.com <br/>nal.svg">Python</td>
 <!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
 <!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
 
-<a href="https://github.com/antonkomarev/github-profile-views-counter">
+<a href="https://github.com/antonkomarevMy snake path
+   
+![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
+/github-profile-views-counter">
     <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
 </a>
 
@@ -368,7 +374,10 @@ I love empoweringil.com <br/>nal.svg">Python</td>
 <!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
 <!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
 
-<a href="https://github.com/antonkomarev/github-profile-views-counter">
+<a href="https://github.com/antonkomarMy snake path
+   
+![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
+ev/github-profile-views-counter">
     <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
 </a>
 
@@ -450,7 +459,10 @@ I love empoweringil.com <br/>nal.svg">Python</td>
 <!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
 <!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
 
-<a href="https://github.com/antonkomarev/github-profile-views-counter">
+<a href="https://github.com/antonkomarev/gitMy snake path
+   
+![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
+hub-profile-views-counter">
     <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
 </a>
 
