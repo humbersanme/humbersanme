@@ -23,17 +23,17 @@ I love empowering** src="https://github-profile-summary-cards.vercel.app/api/car
 
 
 ### Follow me 🤳
-  <a href="https://www.x.com/husan_me"><img src="https://cdn2.iconfinder.com/data/icons/threads-by-instagram/24/x-logo-twitter-new-brand-contained-64.png" width="30px"/></a>
+  <a href="https://www.x.com/husan_me"humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github><img src="https://cdn2.iconfinder.com/data/icons/threads-by-instagram/24/x-logo-twitter-new-brand-contained-64.png" width="30px"/></a>
   <a href="https://www.instagram.com/omarhum20">-cards.vercel.app/api/cards/profile<img src="https://cdn2.iconfinder.com/data/icons/social-media-2285/512/1_Instagram_colored_svg_1-64.png" width="30px"/></a>
   <a href="https://www.linkedin.com/in/humberto-developer"><img src="https://static-exp1.licdn.com/sc/h/eahiplrwoq61f4uan012ia17i" width="30px"/></a> 
-- [🤵 Portfolio](http://127.0.0.1:5500/index.html#contact)<br/>
+- [🤵 Portfolio](http:/humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github/127.0.0.1:5500/index.html#contact)<br/>
 - [🌐 Website](https://sanmen.es) <br/>
 
    # 📊 Stats
 
 <div align="centerthub Metrics </h1>
 <p align="center">
-  <img width="725em" src="h # I am Humberto 
+  <img width="7humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github25em" src="h # I am Humberto 
 
 About me / Acerca de mi 👋
 I love empoweringttps://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
@@ -43,12 +43,12 @@ I love empoweringttps://github-profile-summary-cards.vercel.app/api/cards/profil
 <p align="center">
 
    
-[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+[![humbersanme's githubhumbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ffhumbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
 
 ">  
   <img width="49%" height="195px" src="https://github-readme-stats.vercel.app/api?username=humbersanme&show_icons=true&count_private=true&hide_border=true&title_color=00b3ff&icon_color=00b4ff&text_color=c9d1d9&bg_color=0d1117" alt="humbersanme github stats" /> 
   
-  <img width="41%" height="195px" src="https://github-readme-stats.vercel.app/api/top-langs/?username=humbersanme&layout=compact&hide_border=true&title_color=00b3ff&text_color=00b4ff&bg_color=0d1117" />
+  <img width="41%" height="195px" src="https://github-readmhumbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/githube-stats.vercel.app/api/top-langs/?username=humbersanme&layout=compact&hide_border=true&title_color=00b3ff&text_color=00b4ff&bg_color=0d1117" />
 </div>
 thub Metrics </h1>
 <p align="center">
@@ -62,7 +62,7 @@ I love empoweringgithub-profile-summary-cards.vercel.app/api/cards/profile-detai
 <p align="center">
 
    
-[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+[![humbersanme's github activity graph](httpshumbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
 
 
 ### Tools I use 🛠️
