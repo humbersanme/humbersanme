@@ -1,21 +1,7 @@
- # I amto enter">Github Metrics </h1>
-<p align="center">
-  <img width="725em"** # I am Humberto 
+ # I am Humberto 
 
 About me / Acerca de mi 👋
-I love empowering** src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>
-
-Abo de mi 👋
-I love empowering indiut me / Acerca de mi 👋
-I love empowering individuals t de mi 👋
-I love empowering indio learn neenter">Github Metrics </h1>
-<p align="center">
-  <img width="725em"** # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering** src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>w technologies effortlessly, fostering growth and success in their tech journey.
+I love empowering individuals to learn new technologies effortlessly, fostering growth and success in their tech journey.
 
 # 📈 Statistics 
 
@@ -23,61 +9,30 @@ Doing data
   
 <h1 align="center">Github Metrics </h1>
 <p align="center">
-  <img width="725em"** # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering** src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
+  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=husanme&theme=github_dark" />
 </p>
 
 <h1 align="center">Daily data</h1>
 <p align="center">
 
    
-[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+[![husanme's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=husanme&bg_color=0d1117&color=ffffff&line=ff69b4&point=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
 
 
 ### Follow me 🤳
-  <a href="https://www.x.com/husan_me"humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github><img src="https://cdn2.iconfinder.com/data/icons/threads-by-instagram/24/x-logo-twitter-new-brand-contained-64.png" width="30px"/></a>
-  <a href="https://www.instagram.com/omarhum20">-cards.vercel.app/api/cards/profile<img src="https://cdn2.iconfinder.com/data/icons/social-media-2285/512/1_Instagram_colored_svg_1-64.png" width="30px"/></a>
+  <a href="https://www.x.com/husan_me"><img src="https://cdn2.iconfinder.com/data/icons/threads-by-instagram/24/x-logo-twitter-new-brand-contained-64.png" width="30px"/></a>
+  <a href="https://www.instagram.com/omarhum20"><img src="https://cdn2.iconfinder.com/data/icons/social-media-2285/512/1_Instagram_colored_svg_1-64.png" width="30px"/></a>
   <a href="https://www.linkedin.com/in/humberto-developer"><img src="https://static-exp1.licdn.com/sc/h/eahiplrwoq61f4uan012ia17i" width="30px"/></a> 
-- [🤵 Portfolio](http:/humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github/127.0.0.1:5500/index.html#contact)<br/>
+- [🤵 Portfolio](https://sanmen.es/nuevo-porfol/index.html) <br/>
 - [🌐 Website](https://sanmen.es) <br/>
 
    # 📊 Stats
 
-<div align="centerthub Metrics </h1>
-<p align="center">
-  <img width="7humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github25em" src="h # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empoweringttps://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>
-
-<h1 align="center">Daily data</h1>
-<p align="center">
-
-   
-[![humbersanme's githubhumbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ffhumbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
-
-">  
-  <img width="49%" height="195px" src="https://github-readme-stats.vercel.app/api?username=humbersanme&show_icons=true&count_private=true&hide_border=true&title_color=00b3ff&icon_color=00b4ff&text_color=c9d1d9&bg_color=0d1117" alt="humbersanme github stats" /> 
+<div align="center">  
+  <img width="49%" height="195px" src="https://github-readme-stats.vercel.app/api?username=husanme&show_icons=true&count_private=true&hide_border=true&title_color=00b3ff&icon_color=00b4ff&text_color=c9d1d9&bg_color=0d1117" alt="Patricoders23 github stats" /> 
   
-  <img width="41%" height="195px" src="https://github-readmhumbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/githube-stats.vercel.app/api/top-langs/?username=humbersanme&layout=compact&hide_border=true&title_color=00b3ff&text_color=00b4ff&bg_color=0d1117" />
+  <img width="41%" height="195px" src="https://github-readme-stats.vercel.app/api/top-langs/?username=patricoders23&layout=compact&hide_border=true&title_color=00b3ff&text_color=00b4ff&bg_color=0d1117" />
 </div>
-thub Metrics </h1>
-<p align="center">
-  <img width="725em" src="https:// # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empoweringgithub-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>
-
-<h1 align="center">Daily data</h1>
-<p align="center">
-
-   
-[![humbersanme's github activity graph](httpshumbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
-
 
 ### Tools I use 🛠️
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/html5/html5-original.svg" width="48px"/></span>
@@ -85,50 +40,13 @@ I love empoweringgithub-profile-summary-cards.vercel.app/api/cards/profile-detai
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/javascript/javascript-original.svg" width="48px"/></span>
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/php/php-original.svg" width="48px"/></span> 
    <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/tailwindcss/tailwindcss-original.svg" width="48px"/></span> 
-  <span><img src="htenter">Github Metrics </h1>
-<p align="center">
-  <img width="725em"** # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering** src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>tps://cdn.jsdelivr.net/gh/devicons/devicon/icons/vscode/vscode-original.svg" width="48px"/></span>
+  <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/vscode/vscode-original.svg" width="48px"/></span>
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/bash/bash-original.svg" width="48px"/></span>
-  <span><img src="https://thub Metrics </h1>
-<p align="center">
-  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>
-
-<h1 align="center">Daily data</h1>
-<p align="center">
-
-   
-[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
-
-cdn.jsdelivr.net/gh/devicons/devienter">Github Metrics </h1>
-<p align="center">
-  <img width="725em"** # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering** src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>con/icons/git/git-original.svg" width="48px"/></span>
+  <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/git/git-original.svg" width="48px"/></span>
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/github/github-original.svg" width="48px"/></span>
    <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/canva/canva-original.svg" width="48px"/></span>
   <span><img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/figma/figma-original.svg" width="48px"/></span>
- <span> <img src="https://thub Metrics </h1>
-<p align="center"> # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering
-  <img width="725em" src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>
-
-<h1 align="center">Daily data</h1>
-<p align="center">
-
-   
-[![humbersanme's github activity graph](https://github-re-cards.vercel.app/api/cards/profileadme-activity-graph.vercel.app/graph?username=humbersanme&bg_color=0d1117&color=ffffff&line=ff69b4&pohttps://github-profile-summary-cards.vercel.app/api/cint=f9fafa&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
-
-github.com/tandpfun/skill-icons/blob/main/icons/Linux-Dark.svg" width="48" title="Linux"></span> 
+ <span> <img src="https://github.com/tandpfun/skill-icons/blob/main/icons/Linux-Dark.svg" width="48" title="Linux"></span> 
 <span><img src="" width="48" title=""><img src="https://github.com/tandpfun/skill-icons/blob/main/icons/Python-Dark.svg" width="48" title="Python"></span>  <span><img src="https://github.com/tandpfun/skill-icons/blob/main/icons/AWS-Dark.svg" width="48" title="AWS"></span>
 # 👩‍💻Skills
 
@@ -149,7 +67,23 @@ graph TD;
 graph TD;
     Data-Science-->Python;
     Data-Science-->Linux;
- 
+    Data-Science-->Git;
+    Data-Science-->GitHub;
+    Data-Science-->Machine-Learning;
+    Machine-Learning -->Scikit-Learn;
+    Machine-Learning -->PyTorch;
+    Machine-Learning -->TensorFlow;
+    Machine-Learning -->Keras;
+    Machine-Learning -->XGBoost;
+    Machine-Learning -->Statsmodels;
+    Data-Science-->Deep-Learning;
+    Deep-Learning -->TensorFlow;
+    Deep-Learning -->Keras;
+    Deep-Learning -->PyTorch;
+    Data-Science-->Big-Data;
+    Big-Data -->Apache-Spark;
+    Big-Data -->Scala;
+   ```
 3. Cloud
 
 ```mermaid
@@ -158,7 +92,17 @@ graph TD;
     AWS-->Instances-EC2;
     Instances-EC2 -->On-Demand;
     Instances-EC2 -->Dedicated;
-    
+    Instances-EC2 -->Reserved;
+    Instances-EC2 -->Host;
+    AWS-->Storage-S3;
+    AWS-->Virtual-Private-Cloud-VPC;
+    AWS--> Database;
+    Database --> RDS;
+    RDS --> Aurora;
+    RDS --> Redshift;
+    RDS --> Athena;
+    Database --> Dynamo;
+    AWS--> IAM;
     Cloud-->GCP;
     GCP-->DEVOP`s;
    ```
@@ -166,8 +110,8 @@ graph TD;
 # 👁 Views 
 
 
-![GitHub Followers](https://img.shields.io/github/followers/humbersanme?style=social)
-![GitHub Followers](https://img.shields.io/github/stars/humbersanme?style=social)
+![GitHub Followers](https://img.shields.io/github/followers/husanme?style=social)
+![GitHub Followers](https://img.shields.io/github/stars/husanme?style=social)
 
 
 Countries
@@ -181,17 +125,14 @@ Countries
 # 🐛 Snyken 
 1. My snake path
    
-![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
+![](https://github.com/Platane/snk/raw/output/github-contribution-grid-snake.svg)
 
 
 <!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
 # ➕ Plus
 
 <p align="center">
-  <img align="center" src="https:/ # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering/github-readme-stats.vercel.app/api/top-langs?username=humbersanme&show_icons=true&locale=es&theme=dark" alt="husanme" />
+  <img align="center" src="https://github-readme-stats.vercel.app/api/top-langs?username=husanme&show_icons=true&locale=es&theme=dark" alt="husanme" />
 </p>
 
 <h3 align="left">Knowledge</h3>
@@ -216,7 +157,12 @@ I love empowering/github-readme-stats.vercel.app/api/top-langs?username=humbersa
     <span><strong>JavaScript (JS)</strong></span><br>
     <img height="32px" src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/javascript/javascript-original.svg">
 </td>
-<td width="80p
+<td width="80px" align="center">
+    <span><strong>HTML</strong></span><br>
+    <img height="32px" src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/html5/html5-original.svg">
+</td>
+<td width="80px" align="center">
+    <span><strong>CSS</strong></span><br>
     <img height="32px" src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/css3/css3-original.svg">
 </td>
             <td width="80px" align="center">
@@ -229,30 +175,12 @@ I love empowering/github-readme-stats.vercel.app/api/top-langs?username=humbersa
 
 
 
-<img src="https://github-profilenter">Github Metrics </h1>
-<p align="center">
-  <img width="725em"** # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering** src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>e-trophy.vercel.# Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gma # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empoweringil.com <br/>nal.svg">Pythapp/?username=humbersanme&theme=dracula&row=2&no-bg=true&column=3&margin-w=15&margin-h=15" />
+<img src="https://github-profile-trophy.vercel.app/?username=patricoders23&theme=dracula&row=2&no-bg=true&column=3&margin-w=15&margin-h=15" />
 </p>
 
   <!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
   <img width=100% src="https://capsule-render.vercel.app/api?type=waving&color=191970&height=120&section=header"/>
-  <img width=100% src="https://capsu# Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gma # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empoweringil.com <br/>nal.svg">Pythle-render.vercel.app/api?type=waving&color=191970&height=120&section=footer"/>    
+  <img width=100% src="https://capsule-render.vercel.app/api?type=waving&color=191970&height=120&section=footer"/>    
     <!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
 
 </div>
@@ -266,32 +194,6 @@ I love empoweringil.com <br/>nal.svg">Pythle-render.vercel.app/api?type=waving&c
   <td align="center"><img align="center" alt="Max-Python" height="30" width="40" src="https://raw.githubusercontent.com/devicons/devicon/master/icons/python/python-original.svg">Python</td>
                           
   </table>   
- <!--Final da Tabela - End table-->nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomareenter">Github Metrics </h1>
-<p align="center">
-  <img width="725em"** # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering** src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>v/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
  <!--Final da Tabela - End table-->
 </div>
 
@@ -299,225 +201,12 @@ I love empowering** src="https://github-profile-summary-cards.vercel.app/api/car
 <!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
 
 <a href="https://github.com/antonkomarev/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
+    <img src="https://komarev.com/ghpvc/?username=husanme&style=for-the-badge">
 </a>
 
 
 ### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarev/githubenter">Github Metrics </h1>
-<p align="center">
-  <img width="725em"** # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering** src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarev/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarev/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarev # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?userMy snake path
-   
-![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
-name=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gma # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empoweringil.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarevMy snake path
-   
-![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
-/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarMy snake path
-   
-![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
-ev/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersenter">Github Metrics </h1>
-<p align="center">
-  <img width="725em"** # I am Humberto 
-
-About me / Acerca de mi 👋
-I love empowering** src="https://github-profile-summary-cards.vercel.app/api/cards/profile-details?usernahttps://github-profile-summary-cards.vercel.app/api/cme=hu-cards.vercel.app/api/cards/profilembersanme&theme=github_dark" />
-</p>anme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarev/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarev/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarev/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>nal.svg">Python</td>
-                          
-  </table>   
- <!--Final da Tabela - End table-->
-</div>
-
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarev/github-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
+- sanmen.es/ <br/>
 - +34 639 155213 <br/>
 - husanme17@gmail.com <br/>
-</div>
 
-<!--Final Projetos de Estudos Futuros - End Future Studies Projects-->  
-<!-------------------------------------------------------------------------------------------------------------------------------------------------------------->
-
-<a href="https://github.com/antonkomarev/gitMy snake path
-   
-![](https://github.com/Platane/snk//uP7m/bg_FFFFFF/txt_000000/border_CCCCCC/columns_4/maxflags_12/viewers_0/labels_1/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
-hub-profile-views-counter">
-    <img src="https://komarev.com/ghpvc/?username=humbersanme&style=for-the-badge">
-</a>
-
-
-### Contact Me 📞
-- sanmen.es <br/>
-- +34 639 155213 <br/>
-- husanme17@gmail.com <br/>
